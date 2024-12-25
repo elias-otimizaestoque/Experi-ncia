@@ -1,6 +1,110 @@
 # Experi-ncia
 Projetos e experiência
 
+![chrome_KsVWLvr6Wv](https://github.com/user-attachments/assets/7aeb071d-180d-42cf-9536-1bb4565da999)
+![chrome_Go6HVTsXX6](https://github.com/user-attachments/assets/610f34c3-e24c-4f6b-8f86-50d560c34c75)
+![chrome_Gr0wRgMi1h](https://github.com/user-attachments/assets/5bfdfece-893f-4a63-84f4-d6e9bbed335e)
+![MKyHbsgiGK](https://github.com/user-attachments/assets/05c16f43-e6d2-4e1a-8fd2-32a495478be2)
+
+<img width="1211" alt="chrome_d9CFoACEsT" src="https://github.com/user-attachments/assets/525d2b7b-463b-4b37-9c5a-b447eba1c5c6" />
+<img width="1256" alt="chrome_cbkmM6I44w" src="https://github.com/user-attachments/assets/5b2af683-000b-4be9-969d-af758444fb91" />
+<img width="1256" alt="chrome_nhAKr0Ouot" src="https://github.com/user-attachments/assets/c18d107a-7219-4303-ab70-254c52bd3f90" />
+
+![chrome_by5UUKnDgs](https://github.com/user-attachments/assets/5fd2fa7f-9d5b-46ba-9eeb-f556222b4add)
+
+![image](https://github.com/user-attachments/assets/0da71d5e-ed73-46ac-883f-c32c9919760b)
+![chrome_wMECqSSOWv](https://github.com/user-attachments/assets/178d6995-ba72-42db-8eab-e4841dda249d)
+
+![chrome_RsosiZx5Nt](https://github.com/user-attachments/assets/56b74bce-84b9-4735-acf0-f6b0bd21ac1e)
+
+![IMG-20230819-WA0024](https://github.com/user-attachments/assets/e01fe094-b362-4942-83f7-5661f1f6052f)
+
+![rzAZvmqL37](https://github.com/user-attachments/assets/e58eb0b0-d20b-4ebc-b4a3-f7a05fa12250)
+
+<img width="1202" alt="chrome_M0nNEl39vk" src="https://github.com/user-attachments/assets/0bb67495-40e4-4e30-b85c-ee69c345f011" />
+<img width="1232" alt="chrome_HukjLQyMxa" src="https://github.com/user-attachments/assets/b2915fbb-4846-4772-a845-4719440d6d7d" />
+
+![IMG_20230826_124233](https://github.com/user-attachments/assets/99c391b6-2a3b-4195-b6b2-3d2a766d9bba)
+
+![chrome_CAlCWKPAgG](https://github.com/user-attachments/assets/63fbf4fc-ebe6-47aa-bc35-ffbe5cbc5f00)
+
+![IMG_20230829_230959](https://github.com/user-attachments/assets/a93ef8e2-fe56-4186-bb9c-2cab06c71e3e)
+
+![IMG_20230904_132414](https://github.com/user-attachments/assets/6d18fcd2-0196-499e-8bb4-6ead6df65ddd)
+
+![Uploading IMG_20230908_144844.jpg…]()
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ![IMG_20230408_124656](https://github.com/user-attachments/assets/d229ac79-4aa8-45d5-9d7f-03edad9bcd97)
 ![IMG_20230408_124943](https://github.com/user-attachments/assets/95b3d5c5-b096-4e13-aba7-ab6539e00082)
 
