@@ -145,20 +145,60 @@ Sou um **profissional de alto nível**, com **expertise única** no mercado, e p
 
 | **Tecnologia/Ferramenta** | **Nível de Expertise**   |  
 |---------------------------|--------------------------|  
-| **Python**                 | 🔥 Avançado               |  
-| **RPA**                    | 🚀 Avançado               |  
-| **Flask**                  | ⚙️ Avançado               |  
+| **Desenvolvimento full stack Python**                 | 🔥 Avançado               |  
+| **Automação**                    | 🚀 Avançado               |  
+| **Desenvolvimento de micro sistemas**                  | ⚙️ Avançado               |  
 | **MySQL/PostgreSQL**       | ⚙️ Avançado               |  
-| **Docker**                 | 🔧 Avançado               |  
+| **Docker-Kubernetes**                 | 🔧 Avançado               |  
 | **Machine Learning (ML)**  | 💡 Avançado               |  
 | **Business Intelligence (BI)** | 📊 Avançado         |  
-| **Kubernetes**             | ⚙️ Intermediário         |  
-| **Ansible**                | 🔄 Avançado               |  
+| **Processo, auditorias e melhorias**             | ⚙️ Avançado         |  
+| **Inteligência Artificial**                | 🔄 Avançado               |  
 | **Auto ML - Auto Reports - Auto BI**       | 📈 Avançado               |  
 
 ---
 
-## 🚀 **Por que escolher Elias Andrade?**
+## 🔑 **Expertise em Logística, Compras e Automação** 🚚💼
+
+Tenho uma ampla **experiência prática** na gestão e automação de processos de **logística**, **compras** e **controle de estoque**, utilizando as mais modernas tecnologias e metodologias para gerar **eficiência**, **agilidade** e **precisão** nas operações. Meu trabalho vai além da simples execução de tarefas; sou focado em **melhorias contínuas**, **automação de processos** e **controle de indicadores** para otimizar toda a cadeia logística e de compras da empresa.
+
+### 🔄 **Minhas Competências**:
+
+- **Gestão de Compras e Negociação**: Experiência sólida no **controle de processos de compra**, desde a **negociação de contratos**, passando pelo **recebimento e conferência de notas fiscais**, até a **gestão de relacionamento com fornecedores**.
+- **Automação de Processos de Compras e Estoque**: Criação de **sistemas automáticos** para **controle de estoque**, **notificação de orçamento**, **emissão de comprovantes**, e **automação da comunicação com fornecedores**.
+- **Controle e Conferência**: Implementação de **sistemas de controle** para **recebimento de materiais**, **conferência de notas fiscais**, e **gestão de inventário** em tempo real, garantindo a **precisão e eficiência** no fluxo de compras e estoque.
+- **Indicadores de Desempenho (KPIs)**: **Criação e monitoramento de indicadores** para análise de desempenho de processos, **identificação de gargalos** e tomada de decisões baseadas em dados precisos.
+- **Melhoria Contínua**: Utilização de **metodologias como Lean**, **Kaizen** e **ISO** para implementar processos de **melhoria contínua** nos fluxos de compras, estoque e logística, visando otimizar o tempo, reduzir custos e aumentar a **eficiência operacional**.
+
+### 🚀 **Automação e Tecnologia para a Logística**:
+
+- **Integração de Sistemas**: Integração de ferramentas e sistemas para **gerenciar compras**, **estoque**, **fornecedores**, e **contratos** de maneira eficiente, utilizando tecnologias como **Python**, **Docker**, e **Kubernetes**.
+- **Análise de Dados e Previsão de Demanda**: Aplicação de **Business Intelligence (BI)** e **Machine Learning (ML)** para **previsão de demanda**, controle de estoques e otimização de processos logísticos.
+- **Sistema de Controle de Ordens de Compra**: Implementação de sistemas para **gerenciar ordens de compras**, **controle de recebimento** e **notificação de discrepâncias** no processo.
+
+### 🧰 **Minhas Ferramentas e Habilidades**:
+
+| **Tecnologia/Ferramenta**                 | **Nível de Expertise**   |  
+|-------------------------------------------|--------------------------|  
+| **Gestão de Logística e Compras**         | 🚚 Avançado               |  
+| **Controle de Estoque**                   | 📦 Avançado               |  
+| **Automação de Processos (RPA)**          | 🤖 Avançado               |  
+| **Negociação de Contratos e Compras**     | 📝 Avançado               |  
+| **Business Intelligence (BI)**            | 📊 Avançado               |  
+| **Machine Learning (ML)**                 | 💡 Avançado               |  
+| **Processos de Auditoria e Melhoria**     | 🔄 Avançado               |  
+| **Automação de Relatórios e BI**          | 📈 Avançado               |  
+| **Lean, Kaizen, ISO, ITIL**               | ⚙️ Avançado               |  
+| **Automação de Compras e Orçamentos**     | 🛒 Avançado               |
+
+### 🎯 **Objetivo**:
+
+Busco **autonomia** e **responsabilidade** em **criação e execução de projetos** de **logística**, **compras** e **automação**, com o intuito de **agregar valor** à empresa e **gerar resultados** concretos e mensuráveis, alinhados com o crescimento e **eficiência operacional**. Meu foco está em **entregar resultados**, melhorar processos, reduzir custos e otimizar a performance das operações logísticas e de compras.
+
+---
+
+**Se você procura um profissional que une alta tecnologia, automação e processos eficientes, estou pronto para transformar sua operação. Vamos juntos alcançar novos patamares de performance e resultados!**
+
 
 1. **Experiência Diversificada**: Atuei em **diversos setores**, com **grandes empresas** e em **projetos inovadores** que envolveram desde automação de processos até **desenvolvimento de sistemas de IA**.  
 2. **Foco em Resultados**: Sou apaixonado por **entregar soluções práticas** que realmente **impactem** os processos e a **performance** das empresas, com ênfase em **logística**, **compras** e **estoque**.  
