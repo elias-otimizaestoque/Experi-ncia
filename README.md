@@ -18,6 +18,51 @@ Eu não busco **posição de liderança**. Ao invés disso, busco **autonomia**,
 
 Vamos falar um pouco sobre meu trabalho? 👇
 
+## 🎯 **Perfil Estratégico: Elias Andrade - Profissional de Alta Performance em TI, Logística e Compras** 🚀
+
+Com **experiência sólida** em empresas de alto desempenho, como **Coca-Cola FEMSA** e **Medicinal**, minha trajetória profissional foi forjada nas metodologias **Lean**, **Kaizen**, **ISO** e **ITIL**, que me proporcionaram um profundo entendimento de como integrar **tecnologia avançada** com **processos eficientes** para entregar **resultados concretos**. Ao longo dos anos, estive à frente de **projetos de TI**, **gestão de compras**, **logística** e **estoque**, sempre focado na **busca constante pela melhoria** e na **otimização de processos**.
+
+### 🏭 **Vivência e Expertise em Empresas de Alta Performance**
+Trabalhei com **Coca-Cola FEMSA**, onde a operação é regida pelas metodologias **Lean** e **Kaizen**, garantindo uma performance operacional de **alto nível** e otimização contínua. Tive a oportunidade de aplicar esses conceitos para **melhorar processos de compras**, **gestão de estoque** e **logística**, sempre alinhado à estratégia de **supply chain**.  
+
+Na **Medicinal**, participei ativamente do crescimento de **300%** nos últimos **3 anos**, contribuindo com **entregas diárias de projetos e melhorias contínuas**, que resultaram em ganhos expressivos de **eficiência operacional** e **redução de custos**. A busca constante pela **inovação** e pela **excelência operacional** me permite ser um profissional **único** e altamente qualificado no mercado.
+
+### 🔄 **Metodologias e Abordagens:**
+- **Lean**: Redução de desperdícios e otimização contínua dos processos.
+- **Kaizen**: Melhoria contínua com entregas constantes de valor.
+- **ISO**: Implementação de normas e processos de qualidade.
+- **ITIL**: Melhoria e automação de serviços de TI.
+
+---
+
+### 🚀 **O que Busco:**
+
+Atualmente, busco uma **posição de criação** com **potencial de permanência** na empresa, visando um crescimento **mútuo** por meio de entregas de resultados mensuráveis. Tenho um **perfil estratégico** e um **objetivo claro**: alavancar **projetos de TI**, **logística** e **compras**, **entregar inovação** e **soluções tecnológicas**, e integrar **alta performance** com **estratégias de supply chain**.
+
+### 💼 **Minha Proposta**:
+
+- **Experiência e Expertise**: Tenho uma **experiência consolidada** em empresas de alta performance e **metodologias de excelência**, sendo capaz de **implementar e gerir** soluções que integram **tecnologia** e **processos de supply chain**. 
+- **Foco em Resultados**: Meu trabalho é **orientado para resultados**. Entrego **soluções práticas** para aumentar a **eficiência**, **reduzir custos** e **melhorar a performance operacional**.  
+- **Perfil Único**: Com minha expertise em **sistemas de TI**, **gestão de compras**, **logística**, **automação** e **melhoria contínua**, me considero um **profissional único** e altamente qualificado para **projetos de alta performance**.
+
+### 💰 **Remuneração Proposta**:
+- **R$ 4.100 CLT** ou **R$ 5.100 PJ mensal**, em linha com minha **experiência e o valor agregado** que posso trazer para a empresa.
+
+---
+
+### 🔑 **Objetivo Claro**:
+
+É notório no mercado a falta de **valorização** e **oportunidade de crescimento** para profissionais como eu, que possuem **alta especialização** e experiência em **projetos estratégicos**. Por isso, busco uma empresa que **compartilhe dos mesmos objetivos** e tenha **compatibilidade com meu perfil**. Acredito que, juntos, podemos **crescer de forma exponencial**, alcançando **resultados de alto impacto** e promovendo **melhorias contínuas**.
+
+Se não houver **compatibilidade de objetivos** ou **rota estratégica** da empresa com meu perfil, agradeço pela atenção e estarei à disposição para futuras oportunidades.  
+
+---
+
+### 🌐 **Minha Proposta é um Desafio de Alta Performance:**
+Sou um **profissional de alto nível**, com **expertise única** no mercado, e pronto para **integrar a mais alta tecnologia** e **processos estratégicos** para **entregar soluções inovadoras** nas áreas de **logística**, **compras**, **gestão de TI** e **supply chain**. **Vamos transformar a sua empresa com inovação, eficiência e resultados concretos!**
+
+
+
 ---
 
 ## 🚀 **Destaques de Projetos:**
