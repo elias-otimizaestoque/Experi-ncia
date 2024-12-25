@@ -98,8 +98,11 @@ Projetos e experiência
 
 
 ![chrome_KsVWLvr6Wv](https://github.com/user-attachments/assets/7aeb071d-180d-42cf-9536-1bb4565da999)
+
 ![chrome_Go6HVTsXX6](https://github.com/user-attachments/assets/610f34c3-e24c-4f6b-8f86-50d560c34c75)
+
 ![chrome_Gr0wRgMi1h](https://github.com/user-attachments/assets/5bfdfece-893f-4a63-84f4-d6e9bbed335e)
+
 ![MKyHbsgiGK](https://github.com/user-attachments/assets/05c16f43-e6d2-4e1a-8fd2-32a495478be2)
 
 <img width="1211" alt="chrome_d9CFoACEsT" src="https://github.com/user-attachments/assets/525d2b7b-463b-4b37-9c5a-b447eba1c5c6" />
@@ -111,6 +114,7 @@ Projetos e experiência
 ![chrome_by5UUKnDgs](https://github.com/user-attachments/assets/5fd2fa7f-9d5b-46ba-9eeb-f556222b4add)
 
 ![image](https://github.com/user-attachments/assets/0da71d5e-ed73-46ac-883f-c32c9919760b)
+
 ![chrome_wMECqSSOWv](https://github.com/user-attachments/assets/178d6995-ba72-42db-8eab-e4841dda249d)
 
 ![chrome_RsosiZx5Nt](https://github.com/user-attachments/assets/56b74bce-84b9-4735-acf0-f6b0bd21ac1e)
