@@ -1,7 +1,6 @@
 # Experi-ncia
 Projetos e experiência
 
-
 ![IMG_20230408_124656](https://github.com/user-attachments/assets/d229ac79-4aa8-45d5-9d7f-03edad9bcd97)
 ![IMG_20230408_124943](https://github.com/user-attachments/assets/95b3d5c5-b096-4e13-aba7-ab6539e00082)
 
@@ -24,17 +23,33 @@ Projetos e experiência
 ![chrome_KusXdWgddy](https://github.com/user-attachments/assets/405d0785-4fbf-440d-af23-e1224a943a50)
 ![1685736189113](https://github.com/user-attachments/assets/4ba26ea5-a124-48d1-b193-cb5b7e8f377b)
 
+![chrome_0dkwBIYobi](https://github.com/user-attachments/assets/31177b3a-3443-4387-9f46-3810a47b272a)
+
+![chrome_acPg4nHdPo](https://github.com/user-attachments/assets/7afadb38-23e9-4dd2-90c1-233ffc4d08e6)
+![chrome_bPoqX7a0S8](https://github.com/user-attachments/assets/c69e4fea-de1b-4593-b192-7117fa70eb03)
+![placa-de-video-pny-nvidia-geforce-rtx3060-12-gb-gddr6-dlss-ray-tracing-vcg306012dfbpb1_1663096971_gg](https://github.com/user-attachments/assets/a0114155-ab8f-4cff-b24d-ad0f5cdda657)
+
+![chrome_xNTNwXAIXp](https://github.com/user-attachments/assets/68cd01f0-c3e6-4a51-9a7c-60c7f5855679)
+![chrome_ny1EWxc86E](https://github.com/user-attachments/assets/a161f3a3-0985-4021-b86e-42fa2b2dc430)
+
+![mstsc_AUJ9NRSA6I](https://github.com/user-attachments/assets/e84d930b-896a-4ec6-8b77-a299264d8be7)
+
+![Screenshot_20230626-163445](https://github.com/user-attachments/assets/7d546557-3cda-4c8d-bb74-1c37ff236027)
+
+![mstsc_djb8HFrWW9](https://github.com/user-attachments/assets/1bc6b1c9-76f8-4b16-8d6c-5d1de9baa3da)
+
+![mstsc_wIkziEQaP9](https://github.com/user-attachments/assets/abb72554-38f2-4525-bc64-7218b6dc98d7)
+
+![chrome_fCrIg8YYcp](https://github.com/user-attachments/assets/9f5c9560-5fb5-4caa-95f0-2d30edb5d672)
+![chrome_nPLiNwOfNa](https://github.com/user-attachments/assets/1813a4fd-5377-43a2-840f-662440d72fa1)
+![chrome_fJKuo8qNZS](https://github.com/user-attachments/assets/437564a3-8aba-4464-ad8a-eec922fc2bbf)
+![chrome_h9ws8pvR7t](https://github.com/user-attachments/assets/9c145b2f-97bb-425e-8c5a-940dc1534a47)
+
+![chrome_G74dvaZ1Yt](https://github.com/user-attachments/assets/cb6f85d8-0060-46d9-b609-04a1f72990bd)
 
 
-
-
-
-
-
-
-
-
-
+![IMG_20230712_131958](https://github.com/user-attachments/assets/856976a3-0736-4c0a-a487-0cf17b2864e8)
+![WhatsApp Image 2023-07-12 at 13 28 12](https://github.com/user-attachments/assets/f5d85b17-f58d-42c8-af67-1f4dff8becd6)
 
 
 
