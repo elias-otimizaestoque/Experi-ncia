@@ -1,13 +1,96 @@
 # Experi-ncia
 Projetos e experiência
 
+![python_inuuY2ujuG](https://github.com/user-attachments/assets/3cd2936b-f4eb-4f59-9a89-d2335ba8fb9e)
+
+<img width="1277" alt="chrome_XN9nw6QnmQ" src="https://github.com/user-attachments/assets/c4da7e3f-07c9-4f6f-99f6-d0b546a9b270" />
+
+<img width="1350" alt="chrome_5Ym0x2aC8T" src="https://github.com/user-attachments/assets/c2a59384-6a03-46e0-b7fd-b15626dba27e" />
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ![chrome_KsVWLvr6Wv](https://github.com/user-attachments/assets/7aeb071d-180d-42cf-9536-1bb4565da999)
 ![chrome_Go6HVTsXX6](https://github.com/user-attachments/assets/610f34c3-e24c-4f6b-8f86-50d560c34c75)
 ![chrome_Gr0wRgMi1h](https://github.com/user-attachments/assets/5bfdfece-893f-4a63-84f4-d6e9bbed335e)
 ![MKyHbsgiGK](https://github.com/user-attachments/assets/05c16f43-e6d2-4e1a-8fd2-32a495478be2)
 
 <img width="1211" alt="chrome_d9CFoACEsT" src="https://github.com/user-attachments/assets/525d2b7b-463b-4b37-9c5a-b447eba1c5c6" />
+
 <img width="1256" alt="chrome_cbkmM6I44w" src="https://github.com/user-attachments/assets/5b2af683-000b-4be9-969d-af758444fb91" />
+
 <img width="1256" alt="chrome_nhAKr0Ouot" src="https://github.com/user-attachments/assets/c18d107a-7219-4303-ab70-254c52bd3f90" />
 
 ![chrome_by5UUKnDgs](https://github.com/user-attachments/assets/5fd2fa7f-9d5b-46ba-9eeb-f556222b4add)
@@ -22,6 +105,7 @@ Projetos e experiência
 ![rzAZvmqL37](https://github.com/user-attachments/assets/e58eb0b0-d20b-4ebc-b4a3-f7a05fa12250)
 
 <img width="1202" alt="chrome_M0nNEl39vk" src="https://github.com/user-attachments/assets/0bb67495-40e4-4e30-b85c-ee69c345f011" />
+
 <img width="1232" alt="chrome_HukjLQyMxa" src="https://github.com/user-attachments/assets/b2915fbb-4846-4772-a845-4719440d6d7d" />
 
 ![IMG_20230826_124233](https://github.com/user-attachments/assets/99c391b6-2a3b-4195-b6b2-3d2a766d9bba)
@@ -106,6 +190,7 @@ Projetos e experiência
 
 
 ![IMG_20230408_124656](https://github.com/user-attachments/assets/d229ac79-4aa8-45d5-9d7f-03edad9bcd97)
+
 ![IMG_20230408_124943](https://github.com/user-attachments/assets/95b3d5c5-b096-4e13-aba7-ab6539e00082)
 
 
@@ -114,23 +199,33 @@ Projetos e experiência
 ![IMG_20230510_142535](https://github.com/user-attachments/assets/2407c182-9aa7-42aa-885e-333c30cf37df)
 
 ![chrome_GbuMCjpNds](https://github.com/user-attachments/assets/f59992d5-094d-4613-9ed4-dff6cce259a8)
+
 ![chrome_r3NntUMGJj](https://github.com/user-attachments/assets/d78d93fa-a6a6-4ce9-babd-09ff3a93d7bb)
 
+
 ![IMG_20230519_131835](https://github.com/user-attachments/assets/0687a855-cfc4-4194-9b51-709d9f1d798d)
+
 ![IMG_20230519_131843](https://github.com/user-attachments/assets/59680c6e-036b-452b-8732-e347a51fb165)
 
+
 ![IMG_20230520_114951](https://github.com/user-attachments/assets/01ae004d-8518-4657-9748-0103605e23b2)
+
 ![IMG_20230520_115008](https://github.com/user-attachments/assets/e56d2e6f-e2f6-485b-bc0b-2393a3bcadc9)
+
 ![IMG_20230520_121834](https://github.com/user-attachments/assets/da3622fe-2589-46a1-882e-e7a719ab1a10)
+
 
 
 ![chrome_KusXdWgddy](https://github.com/user-attachments/assets/405d0785-4fbf-440d-af23-e1224a943a50)
 ![1685736189113](https://github.com/user-attachments/assets/4ba26ea5-a124-48d1-b193-cb5b7e8f377b)
 
+
 ![chrome_0dkwBIYobi](https://github.com/user-attachments/assets/31177b3a-3443-4387-9f46-3810a47b272a)
 
 ![chrome_acPg4nHdPo](https://github.com/user-attachments/assets/7afadb38-23e9-4dd2-90c1-233ffc4d08e6)
+
 ![chrome_bPoqX7a0S8](https://github.com/user-attachments/assets/c69e4fea-de1b-4593-b192-7117fa70eb03)
+
 ![placa-de-video-pny-nvidia-geforce-rtx3060-12-gb-gddr6-dlss-ray-tracing-vcg306012dfbpb1_1663096971_gg](https://github.com/user-attachments/assets/a0114155-ab8f-4cff-b24d-ad0f5cdda657)
 
 ![chrome_xNTNwXAIXp](https://github.com/user-attachments/assets/68cd01f0-c3e6-4a51-9a7c-60c7f5855679)
@@ -145,9 +240,14 @@ Projetos e experiência
 ![mstsc_wIkziEQaP9](https://github.com/user-attachments/assets/abb72554-38f2-4525-bc64-7218b6dc98d7)
 
 ![chrome_fCrIg8YYcp](https://github.com/user-attachments/assets/9f5c9560-5fb5-4caa-95f0-2d30edb5d672)
+
 ![chrome_nPLiNwOfNa](https://github.com/user-attachments/assets/1813a4fd-5377-43a2-840f-662440d72fa1)
+
+
 ![chrome_fJKuo8qNZS](https://github.com/user-attachments/assets/437564a3-8aba-4464-ad8a-eec922fc2bbf)
+
 ![chrome_h9ws8pvR7t](https://github.com/user-attachments/assets/9c145b2f-97bb-425e-8c5a-940dc1534a47)
+
 
 ![chrome_G74dvaZ1Yt](https://github.com/user-attachments/assets/cb6f85d8-0060-46d9-b609-04a1f72990bd)
 
@@ -230,9 +330,13 @@ Projetos e experiência
 
 
 <img width="891" alt="chrome_klQnKRD8xC" src="https://github.com/user-attachments/assets/7bf3c489-668d-45f5-8ea4-1fccfad97dba" />
+
 <img width="930" alt="chrome_fZSRs3SUBz" src="https://github.com/user-attachments/assets/4254c30a-6290-41b7-8d55-899ed68c1f7e" />
+
 <img width="891" alt="chrome_z8QZplP9ux" src="https://github.com/user-attachments/assets/d2239145-199e-4dad-9182-627981f47221" />
+
 <img width="837" alt="chrome_q3ERemSXfj" src="https://github.com/user-attachments/assets/4c8ed9cb-8af5-4c31-aee9-e03e0164a4dd" />
+
 <img width="850" alt="chrome_Q89btY95Ff" src="https://github.com/user-attachments/assets/791a4870-3718-44a2-97ec-9554b3563395" />
 
 
@@ -252,7 +356,9 @@ Projetos e experiência
 ![AcroRd32_gon3hcSlqr](https://github.com/user-attachments/assets/b567175d-62f3-4807-bc91-097d0918a05a)
 
 <img width="278" alt="chrome_HOJp5JmGoH" src="https://github.com/user-attachments/assets/6d907d52-8be6-4c77-bfcb-f8f71bee3c2f" />
+
 <img width="917" alt="chrome_Y93QmdPpSw" src="https://github.com/user-attachments/assets/ef1f9570-25e6-4237-a804-c67e2712806c" />
+
 
 ![chrome_aZK30OgEuF](https://github.com/user-attachments/assets/c9790219-a587-404e-9c8b-736bc21512b6)
 ![chrome_j0HCC6pH6s](https://github.com/user-attachments/assets/4c8e7b7e-73c1-4ec9-8e3f-53c5a43a2122)
@@ -300,21 +406,30 @@ Projetos e experiência
 ![IMG_20230223_153648613](https://github.com/user-attachments/assets/37ad4e55-af35-419d-a0ad-038a5cf0692f)
 
 ![chrome_KK44Hrc6Qv](https://github.com/user-attachments/assets/87d2eced-5b8c-44a5-a493-51f3ea71d65f)
+
 ![chrome_YoLGSccT24](https://github.com/user-attachments/assets/0ccdb725-3e2f-4a2b-bb8c-5b5e884bdf21)
 
 <img width="970" alt="chrome_R1SAlACrpx" src="https://github.com/user-attachments/assets/f718008e-4793-4900-8a07-d7c84072d953" />
+
 <img width="911" alt="chrome_NVBalYx9WV" src="https://github.com/user-attachments/assets/928f4384-9f0b-429d-a8de-6bf7571b7f91" />
 
 ![RemoteDesktopManager64_7tclz2Yjl2](https://github.com/user-attachments/assets/7aec9405-8393-40c2-ab97-6f1ae4b0151f)
+
 ![chrome_2ySAYXE015](https://github.com/user-attachments/assets/89d9c3a4-f895-49f5-ba11-599fb722005c)
 
 ![Screenshot_20230312-120318](https://github.com/user-attachments/assets/c6abde66-1409-4bda-9156-eaf10d92433a)
 
 ![chrome_HZhtcq26FQ](https://github.com/user-attachments/assets/3f83759f-a5da-45f1-a569-9e741f804862)
+
 ![chrome_RkgrKWePVQ](https://github.com/user-attachments/assets/3bfe51b9-9fcf-4456-9049-ebccec2843af)
+
 ![chrome_g6Fxq0oyeH](https://github.com/user-attachments/assets/98ff91e9-989b-470d-b2f4-9a7cd90402ac)
+
 ![chrome_HsWLzdiSm1](https://github.com/user-attachments/assets/a03ba707-bdf5-4d80-8bb2-1288963cf664)
+
+
 ![chrome_neObCF4Hx4](https://github.com/user-attachments/assets/1b196edc-1904-4f4f-9116-681fc8513340)
+
 
 
 ![chrome_7HRWiBx4ZT](https://github.com/user-attachments/assets/a8c11503-8fbb-427e-a832-f02cd141472a)
