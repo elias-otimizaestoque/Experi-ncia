@@ -1,4 +1,4 @@
-# Elias Andrade - Especialista em Inovação, Automação e Tecnologia para Logística e TI 🚀💡
+# Elias Andrade - Especialista em Inovação, Automação e Tecnologia para Logística e TI - Showcase 2019 - 2023 🚀💡
 
 [![Badge de Python](https://img.shields.io/badge/Python-3.10-blue)](https://www.python.org/) 
 [![Badge de IA](https://img.shields.io/badge/AI%20Development-Advanced-green)](https://www.openai.com)
