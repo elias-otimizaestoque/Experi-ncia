@@ -76,8 +76,30 @@ Projetos e experiência
 ![chrome_8Jpy2EgHZz](https://github.com/user-attachments/assets/f649f37b-7515-4f28-8c24-1c97dc3c57cf)
 
 ![chrome_2Vi5U83Tae](https://github.com/user-attachments/assets/1abf24c6-dea4-44ff-9953-c0793f99d3d0)
+![explorer_DFMF7jhVKl](https://github.com/user-attachments/assets/5a5707ab-dd14-4240-a650-4492fedea8a7)
+![chrome_ReKfp5bRjo](https://github.com/user-attachments/assets/522fb0b7-2cb9-4648-9c2d-b937035f8aa2)
+![chrome_DEcLTmIt1U](https://github.com/user-attachments/assets/9d292701-1c6e-403b-a200-b28df07e164f)
+![explorer_ybZ7YAYEGI](https://github.com/user-attachments/assets/93e0fc15-6f3e-428c-bd72-07208e0dc28f)
 
+![107199572](https://github.com/user-attachments/assets/120db47c-57b9-479b-80b0-45a5d1f9d875)
 
+![IMG_20231216_174621](https://github.com/user-attachments/assets/ff45a6a2-ea11-4d95-b56e-4d4b810e2dab)
+
+![Screenshot_20231217-085341](https://github.com/user-attachments/assets/5d7cad12-6f8b-4479-9542-287369d54c2b)
+
+![Screenshot_20231217-104422](https://github.com/user-attachments/assets/0ce90a61-29fc-461a-9525-a613c594dc89)
+
+![screencapture-file-F-PROJETO-EMAIL-PIX-dashmobilelista-html-2023-12-17-11_13_15](https://github.com/user-attachments/assets/1ccdff7d-3445-4f95-9936-6df913ea5699)
+
+![chrome_ElRH2V3Qoz](https://github.com/user-attachments/assets/257db5d1-6d9e-4053-8cd0-846a5469dce7)
+
+![chrome_lA8V09FbV7](https://github.com/user-attachments/assets/f2e905c0-08db-4971-bdab-be722c92ea39)
+
+![chrome_LbjBCOlG7G](https://github.com/user-attachments/assets/7212253f-278c-4e21-ac8c-6dbc64d26151)
+
+![maxresdefault](https://github.com/user-attachments/assets/8fdfe3dc-071c-4e23-b1a4-d91a3d4c7862)
+
+![DIAGRAMA PROJETO PIXHUB](https://github.com/user-attachments/assets/8dcaf73a-e4f7-47f4-ad2b-33b905fd8fa6)
 
 
 
