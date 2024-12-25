@@ -40,6 +40,8 @@ Projetos e experiência
 
 ![Software-dev](https://github.com/user-attachments/assets/133013fe-bdc6-4c20-8a56-49942b5f3795)
 
+![shark png](https://github.com/user-attachments/assets/9bea0092-f3d0-4484-aab8-a2ab2fb002d6)
+
 
 
 
