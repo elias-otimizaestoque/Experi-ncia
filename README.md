@@ -7,8 +7,23 @@ Projetos e experiência
 
 <img width="1350" alt="chrome_5Ym0x2aC8T" src="https://github.com/user-attachments/assets/c2a59384-6a03-46e0-b7fd-b15626dba27e" />
 
+![maxresdefault (4)](https://github.com/user-attachments/assets/29a62d78-7852-4f0f-99bb-c6e9a9fe8cf2)
 
+![tensor-rt](https://github.com/user-attachments/assets/1ec2fb32-2f04-4ef8-8132-65389aef75e5)
 
+![maxresdefault (1)](https://github.com/user-attachments/assets/5afc92f8-83a5-43dc-a774-a10c6fb566b1)
+
+![image-19](https://github.com/user-attachments/assets/8e04617e-5d80-4cb8-a4c5-ea5be522935e)
+
+![Turing-Tensor-Core-New-Diag-White-Background](https://github.com/user-attachments/assets/d04b223e-3f0e-4d91-8ad1-20b7346cc9ea)
+
+<img width="504" alt="TensorCoreVolta" src="https://github.com/user-attachments/assets/ed7a5b71-13c3-46e5-8215-de5a8f3f2d92" />
+
+![chrome_dfNZqTB5nG](https://github.com/user-attachments/assets/4b72b4db-a8aa-4adb-9081-7e1f8260878b)
+
+![105524264](https://github.com/user-attachments/assets/e2f7be6e-4b2f-455c-84a9-bb5188246c71)
+
+![105524656](https://github.com/user-attachments/assets/ce28a1bc-a456-4cc6-bc3a-3e084b8ee079)
 
 
 
