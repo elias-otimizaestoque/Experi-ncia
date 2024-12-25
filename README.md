@@ -42,6 +42,41 @@ Projetos e experiência
 
 ![shark png](https://github.com/user-attachments/assets/9bea0092-f3d0-4484-aab8-a2ab2fb002d6)
 
+![UC-35716f6d-0012-4985-87df-646f8953d654](https://github.com/user-attachments/assets/7ef8ef20-9745-4d99-9494-e6d10e9a2975)
+
+![wepik-professional-small-business-company-profile-presentation-20231123073816Qtkd](https://github.com/user-attachments/assets/e6ed5293-aa53-4b1e-bc0d-3c2f95ba0e43)
+
+![chrome_AULdMb1aD7](https://github.com/user-attachments/assets/d138b9cb-398a-4d44-8d1c-5a0bc8b14e1f)
+
+
+![chrome_4PmiBl7XeA](https://github.com/user-attachments/assets/96b0e3c1-fe0b-40ae-b414-d10bc52c3c42)
+
+![chrome_UiBiXLMxEC](https://github.com/user-attachments/assets/50bfaaa0-0c67-46b9-9c81-e3141c2ff738)
+
+![chrome_T4KqNeIjTm](https://github.com/user-attachments/assets/7b43e76f-064c-495b-a60d-fef5e1ec42a6)
+
+![chrome_KC1OBImd5s (1)](https://github.com/user-attachments/assets/7c1119e3-3d21-46d0-8b8a-334e69639487)
+
+![chrome_KC1OBImd5s](https://github.com/user-attachments/assets/e870c6ee-f9c8-43d1-8b36-22fb7655e8f7)
+
+![chrome_rMh1bXLFrm](https://github.com/user-attachments/assets/c4aa7fc2-d565-4b50-afd1-e247431113c8)
+
+![chrome_yz0rWKwJU1](https://github.com/user-attachments/assets/f7cb61f4-cfea-416a-85f0-5d5a806f2e29)
+
+![chrome_k0Afq4C1xL](https://github.com/user-attachments/assets/1c2b28ff-f34e-40e2-969a-f29432b77288)
+
+![chrome_F9L8zYfLya](https://github.com/user-attachments/assets/6a88d3d3-f7b0-43a9-a7ac-d9bd7202320b)
+
+![chrome_zULYYLwNbK](https://github.com/user-attachments/assets/60b879f0-20fd-4937-b6bf-da6c5de2bff9)
+
+![chrome_YM20Fx7gjV](https://github.com/user-attachments/assets/670116db-ad16-428e-890e-01e456fbbb23)
+
+![chrome_J7Gp3k0e6a](https://github.com/user-attachments/assets/42c948f1-f940-4155-9127-69deaabf8685)
+
+![chrome_8Jpy2EgHZz](https://github.com/user-attachments/assets/f649f37b-7515-4f28-8c24-1c97dc3c57cf)
+
+![chrome_2Vi5U83Tae](https://github.com/user-attachments/assets/1abf24c6-dea4-44ff-9953-c0793f99d3d0)
+
 
 
 
