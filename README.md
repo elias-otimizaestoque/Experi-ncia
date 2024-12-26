@@ -279,18 +279,31 @@ Busco **autonomia** e **responsabilidade** em **criação e execução de projet
 ![UC-00da4df3-fcd4-4e9e-a22b-bfbd417c598e](https://github.com/user-attachments/assets/8273a487-2c83-4e66-921a-9af16b45638b)
 
 ![chrome_uUaefqtT8l](https://github.com/user-attachments/assets/21988ef3-e252-4ec8-b8d6-664119de329a)
+
 ![chrome_psh9KuScj1](https://github.com/user-attachments/assets/e1d82e0a-f74e-4670-a9fd-a50a8b2b2109)
+
 ![chrome_bY2SsA0MYE](https://github.com/user-attachments/assets/ea0c17b1-f8c7-4edd-8b30-8a138d28c5db)
+
 ![IMG-20231120-WA0025](https://github.com/user-attachments/assets/b1e61a16-3a20-4868-8dc1-3d6be2eb7959)
+
 ![chrome_kAFN8xonEN](https://github.com/user-attachments/assets/f51a3db3-b619-4358-aad8-15ac3b43485c)
+
 ![chrome_DKWnFI3XNp](https://github.com/user-attachments/assets/ee75d5d6-351a-4962-878f-acef7782192d)
+
 ![chrome_pYv0re18Er](https://github.com/user-attachments/assets/a918c891-a9ca-4ebf-911b-f3771a4c4a31)
+
 ![chrome_w82gyh2ZFA](https://github.com/user-attachments/assets/8a902615-602b-4801-afd0-687876792bd7)
+
 ![chrome_3AfQd9kXMv](https://github.com/user-attachments/assets/c56fec85-c70e-4bb2-bcc1-a1274a4fe9b8)
+
 ![chrome_SE2AaQKzzl](https://github.com/user-attachments/assets/ade6ca44-451c-48ea-bb14-fcc1edf59eb7)
+
 ![chrome_y4NQHNFH4U](https://github.com/user-attachments/assets/ea3a45ee-ad1d-4175-a2dd-726be6615937)
+
 ![chrome_DWXedgwSWP](https://github.com/user-attachments/assets/942c8565-9eb9-4d02-8fad-7ff745de2ea1)
+
 ![chrome_LoYbpfjMsq](https://github.com/user-attachments/assets/ac3f880f-d272-4442-b9d1-41d8ee2781b6)
+
 ![chrome_fgVRUQSEEc](https://github.com/user-attachments/assets/8fb374e5-35ac-42f7-903b-f5a2c4d88d35)
 
 ![chrome_17kHVWLBpR](https://github.com/user-attachments/assets/ae2a2d9b-6300-4b72-872a-8efba06d3816)
@@ -298,9 +311,13 @@ Busco **autonomia** e **responsabilidade** em **criação e execução de projet
 ![chrome_B8B1zrVd0c](https://github.com/user-attachments/assets/ed79c390-ce6a-472b-9d49-44675fa38261)
 
 ![chrome_qhghwnhc4m](https://github.com/user-attachments/assets/2b60be86-6590-4e3a-9adb-1b365a3892b1)
+
 ![chrome_yRueqvUWMq](https://github.com/user-attachments/assets/d6cdd6ef-941b-4c16-9b34-0f6c84eabbd8)
+
 ![chrome_7GeOWM5ayB](https://github.com/user-attachments/assets/21b316d7-e103-42e5-b5e8-f7b87a2db80c)
+
 ![chrome_pZhcf6nsct](https://github.com/user-attachments/assets/14da2b16-c25b-4209-bed3-b3277a72ede2)
+
 ![chrome_RGxHtcu5mL](https://github.com/user-attachments/assets/fb15d2b6-c0a7-41c2-b56e-3a48e8ee6fbf)
 
 ![UC-35c98055-de8b-437e-9d02-c7801a85d457](https://github.com/user-attachments/assets/173d9a2d-c5b4-4013-be7c-4c623c09e743)
@@ -343,9 +360,13 @@ Busco **autonomia** e **responsabilidade** em **criação e execução de projet
 ![chrome_8Jpy2EgHZz](https://github.com/user-attachments/assets/f649f37b-7515-4f28-8c24-1c97dc3c57cf)
 
 ![chrome_2Vi5U83Tae](https://github.com/user-attachments/assets/1abf24c6-dea4-44ff-9953-c0793f99d3d0)
+
 ![explorer_DFMF7jhVKl](https://github.com/user-attachments/assets/5a5707ab-dd14-4240-a650-4492fedea8a7)
+
 ![chrome_ReKfp5bRjo](https://github.com/user-attachments/assets/522fb0b7-2cb9-4648-9c2d-b937035f8aa2)
+
 ![chrome_DEcLTmIt1U](https://github.com/user-attachments/assets/9d292701-1c6e-403b-a200-b28df07e164f)
+
 ![explorer_ybZ7YAYEGI](https://github.com/user-attachments/assets/93e0fc15-6f3e-428c-bd72-07208e0dc28f)
 
 ![107199572](https://github.com/user-attachments/assets/120db47c-57b9-479b-80b0-45a5d1f9d875)
@@ -390,7 +411,9 @@ Busco **autonomia** e **responsabilidade** em **criação e execução de projet
 
 
 ![10403_00](https://github.com/user-attachments/assets/b44a85aa-c6f0-4a83-b273-1a3eb1adfbe4)
+
 ![a5279f8ad3fc3d402f21f05d7eb76bef](https://github.com/user-attachments/assets/86e93011-ba21-4f66-8a49-bac67bccc064)
+
 ![s-l400](https://github.com/user-attachments/assets/c0cf6a5a-d686-4939-b20a-e0a4f2be15fd)
 
 
@@ -471,9 +494,6 @@ Busco **autonomia** e **responsabilidade** em **criação e execução de projet
 
 ![IMG_20230904_132414](https://github.com/user-attachments/assets/6d18fcd2-0196-499e-8bb4-6ead6df65ddd)
 
-![Uploading IMG_20230908_144844.jpg…]()
-
-
 ![IMG_20230408_124656](https://github.com/user-attachments/assets/d229ac79-4aa8-45d5-9d7f-03edad9bcd97)
 
 ![IMG_20230408_124943](https://github.com/user-attachments/assets/95b3d5c5-b096-4e13-aba7-ab6539e00082)
@@ -502,6 +522,7 @@ Busco **autonomia** e **responsabilidade** em **criação e execução de projet
 
 
 ![chrome_KusXdWgddy](https://github.com/user-attachments/assets/405d0785-4fbf-440d-af23-e1224a943a50)
+
 ![1685736189113](https://github.com/user-attachments/assets/4ba26ea5-a124-48d1-b193-cb5b7e8f377b)
 
 
@@ -514,6 +535,7 @@ Busco **autonomia** e **responsabilidade** em **criação e execução de projet
 ![placa-de-video-pny-nvidia-geforce-rtx3060-12-gb-gddr6-dlss-ray-tracing-vcg306012dfbpb1_1663096971_gg](https://github.com/user-attachments/assets/a0114155-ab8f-4cff-b24d-ad0f5cdda657)
 
 ![chrome_xNTNwXAIXp](https://github.com/user-attachments/assets/68cd01f0-c3e6-4a51-9a7c-60c7f5855679)
+
 ![chrome_ny1EWxc86E](https://github.com/user-attachments/assets/a161f3a3-0985-4021-b86e-42fa2b2dc430)
 
 ![mstsc_AUJ9NRSA6I](https://github.com/user-attachments/assets/e84d930b-896a-4ec6-8b77-a299264d8be7)
@@ -553,6 +575,7 @@ Busco **autonomia** e **responsabilidade** em **criação e execução de projet
 
 
 ![Screenshot_20230104-133209](https://github.com/user-attachments/assets/f42c25fd-e164-4152-a81a-a5c8c6bb8167)
+
 ![Screenshot_20230104-133534](https://github.com/user-attachments/assets/e617744c-841b-4450-aa79-aac3d6882380)
 
 
@@ -562,6 +585,7 @@ Busco **autonomia** e **responsabilidade** em **criação e execução de projet
 
 
 ![chrome_dpAyCeZpcN](https://github.com/user-attachments/assets/1df9774c-ff24-41e8-bbb9-023e8d7f37d1)
+
 ![chrome_uchnyhw58b](https://github.com/user-attachments/assets/075fc408-0b9f-4af7-9fe7-b22d730709d6)
 
 ![AcroRd32_Ib1MdCgohe](https://github.com/user-attachments/assets/af0b8fd7-e3ac-4941-b282-243d0525317d)
@@ -573,16 +597,21 @@ Busco **autonomia** e **responsabilidade** em **criação e execução de projet
 
 
 ![chrome_aZK30OgEuF](https://github.com/user-attachments/assets/c9790219-a587-404e-9c8b-736bc21512b6)
+
 ![chrome_j0HCC6pH6s](https://github.com/user-attachments/assets/4c8e7b7e-73c1-4ec9-8e3f-53c5a43a2122)
 
 
 ![Session_lofOkcBhhQ](https://github.com/user-attachments/assets/6f47cd44-2a6d-4dc3-b3bd-029d39f96624)
+
 ![IMG_20230125_144736070](https://github.com/user-attachments/assets/91a8f447-a109-4c22-9214-5039e22269ce)
+
 ![IMG_20230125_151845316](https://github.com/user-attachments/assets/99e34933-10d7-43c2-a238-24b43e4b0dfd)
+
 ![87020262-43bf-409e-ac5b-21a79a522ab8](https://github.com/user-attachments/assets/bfc6804b-4067-45c9-9aa6-ac64b9f6689a)
 
 
 ![chrome_vkhwH5r0MN](https://github.com/user-attachments/assets/cc49ca89-f633-4e57-90c7-c13f03a0db04)
+
 ![chrome_xUtEYH7kv5](https://github.com/user-attachments/assets/bb502292-02b3-4604-b75e-aed823cfdf06)
 
 ![IMG_20230201_174641480](https://github.com/user-attachments/assets/e875f908-4b73-48d4-b9ba-944be40d5c7c)
@@ -594,15 +623,18 @@ Busco **autonomia** e **responsabilidade** em **criação e execução de projet
 ![chrome_Hn8kAnka6U](https://github.com/user-attachments/assets/18ec7cc6-6198-4827-8b09-cc5e9a2f6f5b)
 
 ![IMG_20230207_173914](https://github.com/user-attachments/assets/fb8a43fb-05b7-4a4b-a05a-5c5d894ce8b8)
+
 ![IMG_20230207_173921](https://github.com/user-attachments/assets/ab60f67a-99d1-4cd6-a279-2c96c2cf51e8)
 
 ![IMG_20230208_130036](https://github.com/user-attachments/assets/132feb02-9c90-44c5-83e8-543ebd1773c0)
 
 
 ![IMG_20230209_134119157](https://github.com/user-attachments/assets/a90d3c18-d429-4400-8591-8e0d915594e7)
+
 ![IMG_20230209_134137981](https://github.com/user-attachments/assets/dd1f5388-f8f8-4bb0-a29c-3dd7b71a757c)
 
 ![IMG_20230215_020709](https://github.com/user-attachments/assets/b618feff-f8e5-499f-b5c6-1dc34a1e4575)
+
 ![IMG_20230215_020729](https://github.com/user-attachments/assets/c8c8b735-725c-4565-9ef6-7859e7b32a69)
 
 ![IMG_20230215_140750340](https://github.com/user-attachments/assets/d8ff7ebc-0ca7-4791-a817-a32d1907eee3)
@@ -639,10 +671,7 @@ Busco **autonomia** e **responsabilidade** em **criação e execução de projet
 
 ![chrome_HsWLzdiSm1](https://github.com/user-attachments/assets/a03ba707-bdf5-4d80-8bb2-1288963cf664)
 
-
 ![chrome_neObCF4Hx4](https://github.com/user-attachments/assets/1b196edc-1904-4f4f-9116-681fc8513340)
-
-
 
 ![chrome_7HRWiBx4ZT](https://github.com/user-attachments/assets/a8c11503-8fbb-427e-a832-f02cd141472a)
 
